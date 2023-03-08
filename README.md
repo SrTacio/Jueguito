@@ -1,1 +1,8 @@
-# Jueguito
+# Jueguito![9ba91ed889aca798eba114940f7f0e8fa](https://user-images.githubusercontent.com/127322961/223859182-0b3cc170-4ded-448b-b499-e9a50e559525.jpg)
+![a65](https://user-images.githubusercontent.com/127322961/223859195-8accf53c-0e36-4392-bd03-cae43e4e8dfd.jpg)
+![Bazuso_(anime)](https://user-images.githubusercontent.com/127322961/223859219-2ca05c1b-fd48-4945-8fb3-77d70b7f1280.jpg)
+![BlueSniper](https://user-images.githubusercontent.com/127322961/223859231-ed5c73d1-cdf5-45ae-a0b0-7e3916636608.png)
+![C26z9xoUQAAGT_9](https://user-images.githubusercontent.com/127322961/223859240-7434115b-d75d-4f26-a71f-6319e020a53e.jpg)
+![lordofragako](https://user-images.githubusercontent.com/127322961/223859252-17d50de1-9fee-492d-aad0-0f7b401a30e8.jpg)
+![leoluster](https://user-images.githubusercontent.com/127322961/223859264-1f6ce10a-5ee5-458f-a01f-abb6f63860cd.jpg)
+![zionMyLOVE](https://user-images.githubusercontent.com/127322961/223859276-a58fbb89-1dec-4063-bde8-6aa97f6284a0.jpg)
